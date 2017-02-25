@@ -1,1 +1,1 @@
-Welcome to my project
+Welcome to my project, I hope you enjoy it!
